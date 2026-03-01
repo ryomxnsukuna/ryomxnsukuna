@@ -3,7 +3,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=2c2121&flat&label=kills"></img>
 </p>  ⠀
-<p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤjesㅤ ׅㅤkin namesㅤ𓂃 ࣪˖  ྀིྀ 
+<p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤvexㅤ ׅㅤkin namesㅤ𓂃 ࣪˖  ྀིྀ 
 <p align="center"> theyㅤitㅤheㅤ──ㅤnb / agender . bi 
 <p align="center"> #1 sukuna smoocher, enjoyer, lover, etc etc. 
 <p align="center"> 𐔌՞. .՞𐦯
