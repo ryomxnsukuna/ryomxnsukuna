@@ -7,4 +7,4 @@
 <p align="center"> theyㅤitㅤheㅤ──ㅤnb / agender . bi 
 <p align="center"> #1 sukuna lover, smoocher etc. & #sukugoenjoyer 
 <p align="center"> 𐔌՞. .՞𐦯
-<p align="center"> <a href="https://guns.lol/misanthrxpy">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://foolishjester.atabook.org/">ata</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a> <a href="https://en.pronouns.page/@sukvna">prns.page</a>
+<p align="center"> <a href="https://guns.lol/misanthrxpy">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://foolishjester.atabook.org/">ata</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>
