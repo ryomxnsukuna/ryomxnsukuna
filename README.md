@@ -11,5 +11,5 @@
   
   ㅤㅤ<p align="center"> 
   ㅤ<p align="center"> 
-<p align="center"> <img width="600" height="400" alt="Image" src="https://github.com/user-attachments/assets/bbcc002d-2813-444d-9d36-3faa0b232d7c" />
-omg who are these chuds i hate them sm they obviously dont own my whole heart ofc haha couldnt be me
+<p align="center"> <img width="600" height="400" alt="Image" src="https://github.com/user-attachments/assets/bbcc002d-2813-444d-9d36-3faa0b232d7c" /></p>  ⠀
+<p align="center">  who are these chuds i hate them sm they obviously dont own my whole heart ofc haha couldnt be me </p>  ⠀
