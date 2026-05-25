@@ -1,4 +1,4 @@
-<p align="center"> <img width="600" height="600" alt="Image" src="https://github.com/user-attachments/assets/dda0a9d5-c135-4681-ad20-b6a35eadbfb9" />
+<p align="center"> <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dda0a9d5-c135-4681-ad20-b6a35eadbfb9" />
 
 ㅤ
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=203539&flat&label=kills"></img>
