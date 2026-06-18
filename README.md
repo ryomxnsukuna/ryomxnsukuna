@@ -8,3 +8,10 @@
 <p align="center"> #1 sukuna lover, defender etc. !!! + multishipper 
 <p align="center"> 𐔌՞. .՞𐦯
 <p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://sukugocrumbs.atabook.org/">ata</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>
+
+ ㅤ
+   <p align="center">ㅤ
+  <p align="center">
+<img width="300" height="320" alt="Image" src="https://github.com/user-attachments/assets/746d14c0-39b1-4ba7-9b86-2c53816ff9cd" />
+     <p align="center">
+my little sukuna shrine <3
