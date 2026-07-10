@@ -4,7 +4,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=800000&flat&label=kills"></img>
 </p>  ⠀
 <p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤvexㅤ ׅㅤsukunaㅤ𓂃 ࣪˖  ྀིྀ 
-<p align="center"> t𝙝𝙚yㅤitㅤcurseㅤ──ㅤnb / agender . bi 
+<p align="center"> theyㅤitㅤheㅤ──ㅤnb / agender . bi 
 <p align="center"> #1 sukuna lover, defender etc. !!! + multishipper 
 <p align="center"> 𐔌՞. .՞𐦯
 <p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://embodimentofrage.atabook.org/">ata</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>
