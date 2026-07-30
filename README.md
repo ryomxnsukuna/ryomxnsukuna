@@ -3,7 +3,7 @@
 ㅤ
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=c5c6c7&flat&label=servants"></img>
 </p>  ⠀
-<p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤvexㅤ ׅㅤkunaㅤ ׅㅤryoㅤ𓂃 ࣪˖  ྀིྀ 
+<p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤkunaㅤ ׅㅤryoㅤ𓂃 ࣪˖  ྀིྀ 
 <p align="center"> theyㅤitㅤheㅤ──ㅤnb / agender . bi 
 <p align="center"> #1 sukuna lover, defender etc. !!! + multishipper 
 <p align="center"> 𐔌՞. .՞𐦯
