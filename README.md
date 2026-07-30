@@ -1,7 +1,7 @@
-<p align="center"> <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/dda0a9d5-c135-4681-ad20-b6a35eadbfb9" />
+<p align="center"> <img width="576" height="314" alt="Image" src="https://github.com/user-attachments/assets/e67c0b15-da61-4b4c-af2d-6c1d4bbfdb81" />
 
 ㅤ
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=800000&flat&label=servants"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=c5c6c7&flat&label=servants"></img>
 </p>  ⠀
 <p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤvexㅤ ׅㅤsukunaㅤ𓂃 ࣪˖  ྀིྀ 
 <p align="center"> theyㅤitㅤheㅤ──ㅤnb / agender . bi 
