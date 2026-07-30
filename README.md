@@ -12,6 +12,6 @@
  ㅤ
    <p align="center">ㅤ
   <p align="center">
-<img width="300" height="320" alt="Image" src="https://github.com/user-attachments/assets/746d14c0-39b1-4ba7-9b86-2c53816ff9cd" />
+<img width="340" height="300" alt="Image" src="https://github.com/user-attachments/assets/35435e7d-c6f8-499f-8719-b41dc2ce517e" />
      <p align="center">
 my little sukuna shrine <3
