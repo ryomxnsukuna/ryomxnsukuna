@@ -1,7 +1,7 @@
 <p align="center" > <img width="670" height="700" alt="Untitled607_20261015232721" src="https://github.com/user-attachments/assets/e5c97776-47e2-42a1-a5b8-8d0c9753b004" />
 
 ㅤ
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=53d1df&flat&label=jeskuna+fans"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=97c1cc&flat&label=jeskuna+fans"></img>
 </p>  ⠀
 <p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤkunaㅤ ׅㅤryoㅤ𓂃 ࣪˖  ྀིྀ 
 <p align="center"> theyㅤheㅤitㅤ──ㅤagndr / libramsc . bi 
