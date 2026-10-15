@@ -1,19 +1,20 @@
-<p align="center"> <img width="400" height="409" alt="Image" src="https://github.com/user-attachments/assets/24662874-2588-404d-a06c-5649273873a6" />
+<p align="center" > <img width="670" height="700" alt="Untitled607_20261015232721" src="https://github.com/user-attachments/assets/e5c97776-47e2-42a1-a5b8-8d0c9753b004" />
 
 ㅤ
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=b53389&flat&label=jeskuna+fans"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=53d1df&flat&label=jeskuna+fans"></img>
 </p>  ⠀
 <p align="center"> ᢉ𐭩ㅤjesterㅤ ׅㅤkunaㅤ ׅㅤryoㅤ𓂃 ࣪˖  ྀིྀ 
 <p align="center"> theyㅤheㅤitㅤ──ㅤagndr / libramsc . bi 
 <p align="center"> #1 sukuna lover, defender etc. !!! + multishipper 
 <p align="center"> 𐔌՞. .՞𐦯
 <p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://rentry.co/dismantlecleave">rentry</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>ㅤ<a href="https://embodimentofrage.atabook.org/">ata</a>
-
-ㅤ<p align="center"> awards [@pt-ship-nominations](https://github.com/pt-ship-nominations) [@title-town](https://github.com/title-town) [@pt-fashion](https://github.com/pt-fashion) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@ponychievements](https://github.com/ponychievements)  [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
-
- ㅤ
-   <p align="center">ㅤ
+ <p align="center">ㅤ
   <p align="center">
 <img width="300" height="250" alt="Image" src="https://github.com/user-attachments/assets/09dd31cf-7c81-4925-bbb2-2945a7106523" />
      <p align="center">
 my little sukuna shrine <3
+ 
+ㅤ<p align="center"> awards [@pt-ship-nominations](https://github.com/pt-ship-nominations) [@title-town](https://github.com/title-town) [@pt-fashion](https://github.com/pt-fashion) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@ponychievements](https://github.com/ponychievements)  [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
+ ㅤ
+  
+
