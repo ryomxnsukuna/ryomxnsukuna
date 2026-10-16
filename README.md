@@ -1,5 +1,6 @@
  
-  <img src="https://files.catbox.moe/yb03ax.png"/>
+<p align="center">  <img src="https://files.catbox.moe/yb03ax.png" height=700 width="670">
+<p align="center">ㅤ
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ryomxnsukuna&color=97c1cc&flat&label=jeskuna+fans"></img>
 </p>  ⠀
