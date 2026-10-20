@@ -15,7 +15,7 @@
      <p align="center">
 myㅤsukunaㅤshrineㅤ<3
  
-ㅤ<p align="center"> awards [@pt-ship-nominations](https://github.com/pt-ship-nominations) [@title-town](https://github.com/title-town) [@pt-fashion](https://github.com/pt-fashion) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@ponychievements](https://github.com/ponychievements)  [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)
+ㅤ<p align="center"> awards [@pt-ship-nominations](https://github.com/pt-ship-nominations) [@title-town](https://github.com/title-town) [@pt-fashion](https://github.com/pt-fashion) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@ponychievements](https://github.com/ponychievements) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@Ponytowns-rewards](https://github.com/Ponytown-rewards)
  ㅤ
   
 
