@@ -8,7 +8,7 @@
 <p align="center"> theyㅤheㅤitㅤ──ㅤagndrㅤ/ㅤlibramscㅤ:ㅤbi 
 <p align="center"> #1ㅤsukunaㅤlover,ㅤdefenderㅤetc. !!!ㅤ+ㅤselfshipper<3 
 <p align="center"> 𐔌՞. .՞𐦯
-<p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://rentry.co/dismantlecleave">rentry</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>ㅤ<a href="https://embodimentofrage.atabook.org/">ata</a>
+<p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://pronouns.cc/@sukugo">prns.cc</a>ㅤ<a href="https://rentry.co/dismantlecleave">rentry</a>ㅤ<a href="https://cursxdd.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>ㅤ<a href="https://embodimentofrage.atabook.org/">ata</a>
  <p align="center">ㅤ
   <p align="center">
 <img width="300" height="250" alt="Image" src="https://github.com/user-attachments/assets/09dd31cf-7c81-4925-bbb2-2945a7106523" />
