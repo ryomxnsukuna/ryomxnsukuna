@@ -25,12 +25,13 @@ myㅤsukunaㅤshrineㅤ<3
  <img width="460" height="42" alt="Screenshot 2026-11-16 214154" src="https://github.com/user-attachments/assets/34976ba6-f084-44bc-8ef9-fadf4ae8fc9c" /> 
  <img width="310" height="37" alt="Screenshot 2026-11-16 214142" src="https://github.com/user-attachments/assets/e4dadfd8-75e4-4a9a-93c6-b73c88ccd13c" />
 <img width="450" height="47" alt="Screenshot 2026-11-16 214253" src="https://github.com/user-attachments/assets/2add698e-4133-4984-bdc2-16bea62bebd9" />
-<img width="275" height="40" alt="Screenshot 2026-11-16 214231" src="https://github.com/user-attachments/assets/c48c69d7-9e16-4639-bbc9-29a7ed03137d" />
-<img width="406" height="57" alt="Screenshot 2026-11-16 214314" src="https://github.com/user-attachments/assets/6a70d7b7-2613-457d-8337-6a27e3511566" />
+<img width="270" height="40" alt="Screenshot 2026-11-16 214231" src="https://github.com/user-attachments/assets/c48c69d7-9e16-4639-bbc9-29a7ed03137d" />
+<img width="356" height="47" alt="Screenshot 2026-11-16 214314" src="https://github.com/user-attachments/assets/6a70d7b7-2613-457d-8337-6a27e3511566" />
+<img width="427" height="41" alt="Screenshot 2026-11-16 214530" src="https://github.com/user-attachments/assets/09eae83f-5700-460a-9eb3-3dc0509eccf1" />
 <img width="497" height="45" alt="Screenshot 2026-11-16 214508" src="https://github.com/user-attachments/assets/3c30efba-2f4e-4d95-a674-3f11c8469c7c" />
 <img width="320" height="40" alt="Screenshot 2026-11-16 214425" src="https://github.com/user-attachments/assets/adda3cb1-6f56-487f-b48e-2772b93a3ae6" />
 <img width="576" height="30" alt="Screenshot 2026-11-16 214354" src="https://github.com/user-attachments/assets/1dc75edc-1a28-4880-b3b1-3cec12dced69" />
-<img width="427" height="41" alt="Screenshot 2026-11-16 214530" src="https://github.com/user-attachments/assets/09eae83f-5700-460a-9eb3-3dc0509eccf1" />
+
 <img width="800" height="24" alt="Screenshot 2026-11-16 214331" src="https://github.com/user-attachments/assets/ce0faff6-3fe6-4858-9303-91c153b71042" />
 
   <p align="center">
