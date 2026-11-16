@@ -19,19 +19,20 @@ myㅤsukunaㅤshrineㅤ<3
     <p align="center">
       <p align="center">
 
-   <img width="695" height="65" alt="Screenshot 2026-11-16 214035" src="https://github.com/user-attachments/assets/d6d06ca0-3b90-490e-ac16-36c72f7eb8e7" />
+   <img width="500" height="49" alt="Screenshot 2026-11-16 214035" src="https://github.com/user-attachments/assets/d6d06ca0-3b90-490e-ac16-36c72f7eb8e7" />
   <img width="376" height="52" alt="Screenshot 2026-11-16 214100" src="https://github.com/user-attachments/assets/b64ee9f2-4b1b-4e79-9e9a-33a63ee96624" />
 <img width="297" height="40" alt="Screenshot 2026-11-16 214121" src="https://github.com/user-attachments/assets/369a22f2-d327-4388-911f-361c37e56ff2" />
-  <img width="310" height="37" alt="Screenshot 2026-11-16 214142" src="https://github.com/user-attachments/assets/e4dadfd8-75e4-4a9a-93c6-b73c88ccd13c" />
-<img width="460" height="42" alt="Screenshot 2026-11-16 214154" src="https://github.com/user-attachments/assets/34976ba6-f084-44bc-8ef9-fadf4ae8fc9c" />
+ <img width="460" height="42" alt="Screenshot 2026-11-16 214154" src="https://github.com/user-attachments/assets/34976ba6-f084-44bc-8ef9-fadf4ae8fc9c" /> 
+ <img width="310" height="37" alt="Screenshot 2026-11-16 214142" src="https://github.com/user-attachments/assets/e4dadfd8-75e4-4a9a-93c6-b73c88ccd13c" />
 <img width="450" height="47" alt="Screenshot 2026-11-16 214253" src="https://github.com/user-attachments/assets/2add698e-4133-4984-bdc2-16bea62bebd9" />
 <img width="275" height="40" alt="Screenshot 2026-11-16 214231" src="https://github.com/user-attachments/assets/c48c69d7-9e16-4639-bbc9-29a7ed03137d" />
 <img width="406" height="57" alt="Screenshot 2026-11-16 214314" src="https://github.com/user-attachments/assets/6a70d7b7-2613-457d-8337-6a27e3511566" />
-<img width="425" height="58" alt="Screenshot 2026-11-16 214425" src="https://github.com/user-attachments/assets/adda3cb1-6f56-487f-b48e-2772b93a3ae6" />
+<img width="497" height="45" alt="Screenshot 2026-11-16 214508" src="https://github.com/user-attachments/assets/3c30efba-2f4e-4d95-a674-3f11c8469c7c" />
+<img width="320" height="40" alt="Screenshot 2026-11-16 214425" src="https://github.com/user-attachments/assets/adda3cb1-6f56-487f-b48e-2772b93a3ae6" />
+<img width="576" height="30" alt="Screenshot 2026-11-16 214354" src="https://github.com/user-attachments/assets/1dc75edc-1a28-4880-b3b1-3cec12dced69" />
 <img width="427" height="41" alt="Screenshot 2026-11-16 214530" src="https://github.com/user-attachments/assets/09eae83f-5700-460a-9eb3-3dc0509eccf1" />
-<img width="797" height="68" alt="Screenshot 2026-11-16 214508" src="https://github.com/user-attachments/assets/3c30efba-2f4e-4d95-a674-3f11c8469c7c" />
-<img width="776" height="40" alt="Screenshot 2026-11-16 214354" src="https://github.com/user-attachments/assets/1dc75edc-1a28-4880-b3b1-3cec12dced69" />
-<img width="1011" height="30" alt="Screenshot 2026-11-16 214331" src="https://github.com/user-attachments/assets/ce0faff6-3fe6-4858-9303-91c153b71042" />
+<img width="800" height="24" alt="Screenshot 2026-11-16 214331" src="https://github.com/user-attachments/assets/ce0faff6-3fe6-4858-9303-91c153b71042" />
+
   <p align="center">
   <p align="center">
 
