@@ -19,6 +19,9 @@ myㅤsukunaㅤshrineㅤ<3
     <p align="center">
       <p align="center">
 
+<details>
+  <summary> awards <3 </summary>
+ 
    <img width="500" height="49" alt="Screenshot 2026-11-16 214035" src="https://github.com/user-attachments/assets/d6d06ca0-3b90-490e-ac16-36c72f7eb8e7" />
   <img width="376" height="52" alt="Screenshot 2026-11-16 214100" src="https://github.com/user-attachments/assets/b64ee9f2-4b1b-4e79-9e9a-33a63ee96624" />
 <img width="297" height="40" alt="Screenshot 2026-11-16 214121" src="https://github.com/user-attachments/assets/369a22f2-d327-4388-911f-361c37e56ff2" />
@@ -35,7 +38,7 @@ myㅤsukunaㅤshrineㅤ<3
 <img width="800" height="24" alt="Screenshot 2026-11-16 214331" src="https://github.com/user-attachments/assets/ce0faff6-3fe6-4858-9303-91c153b71042" />
 
   <p align="center">
-  <p align="center">
+   <p align="center">
+   
 
   tysm [@pt-ship-nominations](https://github.com/pt-ship-nominations) [@title-town](https://github.com/title-town) [@pt-fashion](https://github.com/pt-fashion) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@ponychievements](https://github.com/ponychievements) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@Knox-Event](https://github.com/Knox-Event) [@pts-r0ttingeyes](https://github.com/pts-r0ttingeyes) [@music-town](https://github.com/music-town) [@THE-TEMPIST](https://github.com/THE-TEMPIST) [@pt-everypony](https://github.com/pt-everypony) [@pony-town-nominations](https://github.com/pony-town-nominations)
-
